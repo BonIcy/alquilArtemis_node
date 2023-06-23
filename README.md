@@ -1,0 +1,1 @@
+documenté los pasos a mi manera, puede llegar  aser confuso para algunos, srry jaja :(
