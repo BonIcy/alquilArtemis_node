@@ -1,1 +1,1 @@
-documenté los pasos a mi manera, puede llegar  aser confuso para algunos, srry jaja :(
+documenté los pasos a mi manera, puede llegar  a ser confuso para algunos, srry jaja :(
